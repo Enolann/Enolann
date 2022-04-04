@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Taylan (@Enolann)...
+- I want to progress towards becoming a game developer. 
+- Of course, after making a solid entry into the software industry and making progress.
+- I'm at a level where I can't help anyone yet, so if you want to contact me to benefit me for now,
+- you can reach https://www.instagram.com/taysnn03/ Thank you :)
